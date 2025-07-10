@@ -15,4 +15,4 @@
 隐私保护是平台的重点之一，平台使用HTTPS加密传输，确保用户的信息不泄露。此外，平台不会弹出恶意广告，避免了干扰用户观看的情况。  
 总的来说，午夜小视频在线观看黄色系列影片凭借高清画质、免注册观看、丰富的影片分类和隐私保护等优势，成为了众多成人影迷的首选。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/job234543/ribentt12 )</span>
